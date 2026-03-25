@@ -5,11 +5,15 @@ The clothing I used are not mine!
 
 Items used:
 Christmas shirt example: https://www.roblox.com/catalog/1219355241/MU-Christmas-Red-Crewneck-Sweater
+
 Christmas Pants example: https://www.roblox.com/catalog/5210191779/red-plaid
+
 Christmas Hat example: https://www.roblox.com/catalog/85740241549403/Christmas
 
 Pants example: https://www.roblox.com/catalog/129459077/Black-Slacks
+
 Shirt example: https://www.roblox.com/catalog/7152058085/Grey-Suit-w-Vest-No-Gloves
+
 Hair accessory example: https://www.roblox.com/catalog/451221329/True-Blue-Hair
 
 Fun fact: We all know true blue hair is free lol
