@@ -1,7 +1,9 @@
 Tired of Dynamic heads when importing your avatar into Roblox? Worry no more because this template has classic faces in those avatars. If you already know how to do it, no need worry about downloading it. It does have
 some rig examples I kinda made. Feel free to change them!
 
-The clothing I used are not mine!
+# Disclaimer
+
+**The clothing I used are not mine!**
 
 Items used:
 Christmas shirt example: https://www.roblox.com/catalog/1219355241/MU-Christmas-Red-Crewneck-Sweater
